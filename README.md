@@ -1,1 +1,0 @@
-# RichP-privacyPolicy
